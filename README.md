@@ -1,5 +1,2 @@
 - 👋 Hi, I’m @phjh
-- 👀 I’m interested in learning programming.
-- 🌱 I’m currently learning programming.
-- 💞️ I’m looking to collaborate on anything.
-- 📫 How to reach me aska201234@gmail.com
+- 📫 How to reach me adsf8800@naver.com
